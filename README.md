@@ -14,8 +14,8 @@ Telegram賬號：@
 3、最新地址
               
 隐秘空间地址：Https://www.YinMIKJ.Com/                 
-域名可后面加 /sp - /dh                    
-隐秘花园地址: Https://www.YinMISS.Com/sp                 
+域名可后面加：/sp - /dh                    
+隐秘花园地址：Https://www.YinMISS.Com/sp                 
 隐秘文化地址：Https://www.YinMIXX.Com/dh                  
                                        
 牢記中文地址：Https://www.隐秘空间.Com -  Https://www.56789.Cam - 避免遺失本站                             
