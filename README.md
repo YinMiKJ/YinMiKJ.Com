@@ -11,16 +11,15 @@ ________________________________________________________________________________
 2、廣告合作事宜                    
 看到此回复，若您還沒有提供貴站地址，請提供一下。                  
 Telegram賬號：@                                 
-3、最新地址             
-                                     
-隐秘空间 地址：Https://www.YinMIKJ.Com/                                                                    
-丝袜Cos社视频：Https://www.583690.Com/                                                                                                       
-美女Cos社视频：Https://www.lmgespace.Com/                                                                                       
-JAV-情色网视频：Https://www.853691.Com/                                                                    
-开心情色站   ：Https://www.yinmi.space/porn/                                            
-开心激情网   ：Https://www.56789.cam/sp                                                                               
-                                            
-牢記中文地址：Https://www.隐秘空间.Com -  Https://www.56789.Cam - 避免遺失本站                                  
+3、请牢记 隐秘空间 最新地址                      
+                                                        
+牢记地址：Https://www.YinMIKJ.shop/             
+牢记地址：Https://www.YinMIKJ.vip/             
+牢记地址：Https://www.YinMIKJ.life/           
+牢记地址：Https://www.YinMIKJ.live/                
+牢记地址：Https://www.YinMIKJ.info/                                                                                                                                                 
+                                                             
+牢記中文地址：Https://www.隐秘空间.Com -  Https://www.引导页.Com - 避免遺失本站                                  
                                                              
 About地址：Https://about.me/YinMiKJ -（最新域名發布地址，永久可用，建議收藏）                            
 ___________________________________________________________________________________                           
